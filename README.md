@@ -10,4 +10,4 @@
 
 ![](https://docs.google.com/drawings/d/e/2PACX-1vRSaFuOXMSI4lh3odYpwGxTOW7tqYECYzk8p-V38x1CMbb0Ofzn2c9lT_EtqcLO3jd-R71ydXHkR_oJ/pub?w=955&h=337)
 
-![](https://docs.google.com/drawings/d/e/2PACX-1vRIB8By7YugPY7qSoPOlvtjuWto9k6ud39fZMCQ8YO-n37xJ4mQgyJ_DJLtbbGKUlE2KjLMO4Gk0uMO/pub?w=1155&h=650)
+![](https://docs.google.com/drawings/d/e/2PACX-1vRIB8By7YugPY7qSoPOlvtjuWto9k6ud39fZMCQ8YO-n37xJ4mQgyJ_DJLtbbGKUlE2KjLMO4Gk0uMO/pub?w=1067&h=560)
